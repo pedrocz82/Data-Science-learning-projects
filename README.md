@@ -8,7 +8,7 @@ PhD (analytical chemistry), with 10+ years of experience in the metabolomic and 
 Enthusiast of data science and digital marketing, with an emphasis on paid traffic management.
 
 
-* Medium:	  https://bit.ly/3sNQsKR
-* Linkedin: https://bit.ly/3cNl2ym
-* Site:     https://bit.ly/3wjJWO5
+* **Medium:**	  https://bit.ly/3sNQsKR
+* **Linkedin:** https://bit.ly/3cNl2ym
+* **Site:**     https://bit.ly/3wjJWO5
 
