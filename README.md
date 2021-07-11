@@ -10,5 +10,5 @@ Enthusiast of data science and digital marketing, with an emphasis on paid traff
 
 * **Medium:**	  https://bit.ly/3sNQsKR
 * **Linkedin:** https://bit.ly/3cNl2ym
-* **Site:**     https://bit.ly/3wjJWO5
+* **Site:**     https://bit.ly/3k26fUK
 
